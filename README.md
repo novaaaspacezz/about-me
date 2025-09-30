@@ -1,5 +1,5 @@
 # about-me
-I’m boba or nova any of those names you can call me ! i use any pronouns and im agender
+I’m boba or nova any of those names you can call me !
 I have a youtube channel and tiktok, x 
 my dni, proshippers, darkshippers, pedophiles, zoophiles, problematic people, racist people,and the basic dni criteria, also necrophiles dni.
 i'm married to my dearest husband !!
