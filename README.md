@@ -1,9 +1,3 @@
-# about-me
-I’m boba or nova any of those names you can call me !
-my dni, proshippers, darkshippers, pedophiles, zoophiles, problematic people, racist people,and the basic dni criteria, also necrophiles dni.
-i'm aroace.
-i'm a artist, animator.
-i mostly play phighting, pony town, phighting the zone.
-commissions will be open soon,
-thats all about me for now !!
-also just to know i got divorced so i won't talk abiut my husband,,
+![image](https://github.com/user-attachments/assets/1fdf3d65-d91c-4231-a267-03bf3969811b)
+                     
+             c + h w2i im mostly near bakery map
